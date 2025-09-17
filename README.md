@@ -55,7 +55,7 @@
 ## 🌐 Connect with Me  
 - 💼 [LinkedIn](https://www.linkedin.com/in/tania-islam-072a30374)  
 - 🌱 [Linktree](https://linktr.ee/tania678)  
-- 📫 [Email]: **tania.islam2906@gmail.com**  
+- 📫 **tania.islam2906@gmail.com**  
 
 ---
 
